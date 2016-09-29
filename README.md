@@ -1,2 +1,4 @@
-# windows-xp
-ruindows xp professional do doidu
+WINDOWS XP Professional
+
+Your Ruindows in running.exe
+________________________
